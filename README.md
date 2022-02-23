@@ -1,2 +1,2 @@
 # EPIK-Tower-Defense
-Janis is schwul
+Janis is schwul (meistens)
