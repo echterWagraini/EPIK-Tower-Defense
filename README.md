@@ -1,6 +1,6 @@
 # EPIK-Tower-Defense
 Super Cooles Tower Defense Game,
-verfügbar auf Steam für 20,- €
+verfügbar auf Steam für 19,99 €
 
 uwu
 
