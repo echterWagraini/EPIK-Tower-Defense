@@ -1,3 +1,8 @@
 # EPIK-Tower-Defense
-Janis is schwul (meistens)
-Hald deins Gosch
+Super Cooles Tower Defense Game,
+verfügbar auf Steam für 20,- €
+
+uwu
+
+
+da leon föht heid
